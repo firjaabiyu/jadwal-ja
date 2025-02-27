@@ -1,1 +1,1 @@
-#2nd semester project by firja
+2nd semester project by firja
